@@ -23,6 +23,6 @@ I want to keep building anything and everything so I express myself freely
 
 I'm in the process of creating more projects
 
-You can contact be by my email, listed in my profile
+You can contact through my email: **heyitsjhello@gmail.com**
 
 Thank you!
